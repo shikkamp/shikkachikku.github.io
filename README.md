@@ -1,1 +1,0 @@
-# shikkachikku.github.io
